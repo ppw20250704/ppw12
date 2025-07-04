@@ -18,4 +18,4 @@
 
 如果你正在寻找一个稳定、安全、纯净又永久免费的视频平台，这里就是你的理想选择。每天上线看看，说不定就能发现你期待已久的经典番号。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link]( https://github.com/ppw20250704/ppw12 ）</span>
